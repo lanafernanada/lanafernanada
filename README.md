@@ -1,5 +1,4 @@
 ### Lana Fernanda
-- Estudante
 
 - 📚 Estudante de Ensino Médio
 - 🗽 English student
